@@ -10,7 +10,7 @@
 
 ## Some Verses i've collected:
 - Great Wall's glory is their flaming wildfire.
-- Those who 
+- Those who live with hedonic, must have brought disaster to their fellows.
 
 ## Some Verses i've collected:
 - 长城野火,永不熄灭。
